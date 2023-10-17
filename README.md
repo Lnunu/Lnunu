@@ -1,0 +1,6 @@
+### Hi there 👋
+
+你好鸭，我是Lnunu
+
+- 🔭 I’m a programmer ...
+- to be continue ...
